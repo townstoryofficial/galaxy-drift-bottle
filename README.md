@@ -5,5 +5,5 @@ Here is the airdrop for lucky Earth's inhabitants. Open the Galaxy Drift Bottle 
 
 The Galaxy Drift Bottle can be opened on Town Story Officiial website, and see if you are eligible for whitelist minting in advance and get the huge benefits and rewards in our game - Town Story Galaxy
 
-Open the Galaxy Drift Bottle here and check the remaining number of whitelists:
-&gt;&gt; [https://townstory.io/wish](https://townstory.io/wish123)
+Open the Galaxy Drift Bottle here and check the remaining number of whitelists:  
+&gt;&gt; [https://townstory.io/wish](https://townstory.io/wish)
